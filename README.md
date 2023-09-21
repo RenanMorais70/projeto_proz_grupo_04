@@ -44,9 +44,9 @@ atrair clientes que valorizam a sustentabilidade.
 
 Autores:
 
-Renan Morais
-Nádia
-Jacimar 
+Renan Morais,
+Nádia,
+Jacimar e 
 Leonardo
 
 Link:
